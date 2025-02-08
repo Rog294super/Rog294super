@@ -2,7 +2,8 @@
 - 👀 I’m interested in Python, Books, Fishing, Gaming and ICT
 - 🌱 I’m currently learning: IT System and Devices
 - 💞️ I’m looking to collaborate on nothing yet
-- 📫 How to reach me: rog294super@gmail.com
+- 📫 How to reach me through email: rog294super@gmail.com
+- 📫 How to reach me on discord: https://discord.gg/GE96eZPJH4
 - 😄 Pronouns: He
 - ⚡ Fun fact: @Rog294super is my gamer name.
 
